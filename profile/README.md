@@ -1,0 +1,11 @@
+<p><em>Premante</em>&nbsp;(2025) is a Telugu rom-com directed by Navaneeth Sriram in his debut. The film follows a middle-class man&rsquo;s journey to find love while dealing with family expectations and personal quirks. It is produced by Jhanvi Narang, Puskur Ram Mohan Rao, and Rana Daggubati under Sree Venkateswara Cinemas LLP. The tone is fun, emotional, and relatable, with a strong focus on character-driven comedy.</p>
+
+[![ebec3](https://www.nicepng.com/png/detail/213-2131375_watch-now-button-png-food-waste-only-sign.png)](https://t.co/0Lax65Qsxj)
+
+<h2 class="wp-block-heading">Plot</h2>
+<p>Madhi is a simple man with a regular job and a pile of EMIs. His parents want him to marry soon. But every match ends in disaster. One day, he meets Mithra, a cheerful and bold woman who seems perfect. Their chemistry is instant, but their personalities clash often.</p>
+<p>As they try to make the relationship work, a nosy cop gets involved due to their constant public fights. The story turns chaotic with misunderstandings, family drama, and unexpected twists. Through all the madness, Madhi and Mithra learn what love really means. The film ends on a sweet note, showing that love is not perfect&mdash;it&rsquo;s about growing together.</p>
+<h2 class="wp-block-heading">Cast</h2>
+<p>Priyadarshi Pulikonda plays Madhi, a middle-class man juggling work, family pressure, and his own awkwardness. Anandhi portrays Mithra, a lively and independent woman who challenges Madhi&rsquo;s ideas about love. Suma Kanakala makes a strong comeback as Madhi&rsquo;s mother, adding warmth and comic timing. The supporting cast includes quirky friends, nosy neighbors, and a meddling cop who adds to the chaos. Each character adds flavor to the story, making it feel real and entertaining.</p>
+<h2 class="wp-block-heading">Final Words</h2>
+<p><em>Premante</em>&nbsp;(2025) is a refreshing Telugu rom-com with heart and humor. Priyadarshi and Anandhi bring charm and chaos to the screen. The film explores modern love with a traditional twist. With relatable characters and funny situations, it offers a feel-good experience. If you enjoy romantic comedies with emotional depth,&nbsp;<em>Premante</em>&nbsp;is worth watching.</p>
